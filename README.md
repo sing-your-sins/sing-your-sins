@@ -1,21 +1,21 @@
 ## SING YOUR SINS
 <!--
-![1797](https://github.com/user-attachments/assets/3a0c2291-147a-440d-bfd9-b1ef4794a488)
+#![1797](https://github.com/user-attachments/assets/3a0c2291-147a-440d-bfd9-b1ef4794a488)
 
 
 ## YOUR INTERROGATION STARTS NOW
 
-![1789](https://github.com/user-attachments/assets/3998e1fe-8f4b-4bde-8376-83de029ea2d6)
+#![1789](https://github.com/user-attachments/assets/3998e1fe-8f4b-4bde-8376-83de029ea2d6)
 
 ## ABOUT USER INFO
 
-![1793](https://github.com/user-attachments/assets/c463db5b-d2e6-44c3-8b73-8c1bc0b16825)
+#![1793](https://github.com/user-attachments/assets/c463db5b-d2e6-44c3-8b73-8c1bc0b16825)
 
 
-Name's Zero but you can also call me Rei. 
+#Name's Zero but you can also call me Rei. 
 
-I like to draw! you can check it out on fb: sing.your.sins
+#I like to draw! you can check it out on fb: sing.your.sins
 
-I am below 18 so please mind your words and have some respect. DNI if mentioned but I'm mostly okay with c+h or whisps.
+#I am below 18 so please mind your words and have some respect. DNI if mentioned but I'm mostly okay with c+h or whisps.
 
-![1796](https://github.com/user-attachments/assets/71682253-f6a0-41ad-8522-b9c89d66dd81)
+#![1796](https://github.com/user-attachments/assets/71682253-f6a0-41ad-8522-b9c89d66dd81)
