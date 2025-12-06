@@ -1,15 +1,21 @@
 ## SING YOUR SINS
 <!--
-![gif](https://github.com/user-attachments/assets/c320da30-49ab-42a2-9df5-3af826c0a503)
+![1797](https://github.com/user-attachments/assets/3a0c2291-147a-440d-bfd9-b1ef4794a488)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## YOUR INTERROGATION STARTS NOW
+
+![1789](https://github.com/user-attachments/assets/3998e1fe-8f4b-4bde-8376-83de029ea2d6)
+
+## ABOUT USER INFO
+
+![1793](https://github.com/user-attachments/assets/c463db5b-d2e6-44c3-8b73-8c1bc0b16825)
+
+
+Name's Zero but you can also call me Rei. 
+
+I like to draw! you can check it out on fb: sing.your.sins
+
+I am below 18 so please mind your words and have some respect. DNI if mentioned but I'm mostly okay with c+h or whisps.
+
+![1796](https://github.com/user-attachments/assets/71682253-f6a0-41ad-8522-b9c89d66dd81)
